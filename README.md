@@ -10,5 +10,12 @@ meu nome é jennifer
 - 🤔 é isso show de bola  ...
  ...estudo na escola cedab
 -->
+
+
+
+
+
+
+
 ![Nry4](https://github.com/jenniferpz/jenniferPz/assets/136722061/fdd8be10-63de-4bf5-bf65-ec4a68c2dd1d)
 

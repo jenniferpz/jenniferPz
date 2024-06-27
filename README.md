@@ -14,8 +14,8 @@ meu nome é jennifer
 
 
 
+![b787d4e08019baa232b0011ae896c5eb](https://github.com/jenniferpz/jenniferPz/assets/136722061/8dfa3f9c-e1cf-43ca-96df-c1b62e9ffda8)
 
 
 
-![Nry4](https://github.com/jenniferpz/jenniferPz/assets/136722061/fdd8be10-63de-4bf5-bf65-ec4a68c2dd1d)
 
